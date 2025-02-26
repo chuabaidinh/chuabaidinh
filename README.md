@@ -1,16 +1,17 @@
-## Hi there 👋
+## Chùa Bái Đính Ninh Bình
 
-<!--
-**chuabaidinh/chuabaidinh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Chùa Bái Đính Ninh Bình là một trong những ngôi chùa đẹp và lớn nhất Đông Nam Á, thu hút hàng nghìn phật tử và du khách thập phương mỗi ngày. Không chỉ là điểm hành hương linh thiêng của người dân địa phương, chùa còn là điểm đến tâm linh nổi tiếng, nơi du khách trong và ngoài nước tìm về để dâng hương, cầu bình an và chiêm ngưỡng kiến trúc hùng vĩ giữa non nước hữu tình
 
-Here are some ideas to get you started:
+- Địa chỉ: Xã Gia Sinh, huyện Gia Viễn, tỉnh Ninh Bình
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0913.899.135
+
+- Website: https://chuabaidinhninhbinh.vn
+
+https://www.twitch.tv/chuabaidinh
+
+https://coub.com/chuabaidinh
+
+https://issuu.com/chuabaidinh
+
+https://www.producthunt.com/@chuabaidinh
